@@ -101,10 +101,8 @@ Output Waveform
 
 
 Tabulation
-![IMG_20251125_123228](https://github.com/user-attachments/assets/ec2067c6-78ca-40a7-950c-5347434c56cf)
 
-![IMG_20251125_123236](https://github.com/user-attachments/assets/ecbf93ec-5e43-4608-8782-9d3810c44b34)
-
+![WhatsApp Image 2025-11-26 at 22 23 14_76097d1b](https://github.com/user-attachments/assets/df092bd7-de4d-4084-a019-1536cdfaf4aa)
 
 
 Calculation
